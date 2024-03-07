@@ -15,7 +15,7 @@ De igual manera aparte de realizar desarrollo de software, tambien creacion de l
 As well as software development, I also create logos!
 Me pueden contactar | You can contact me :
 
-Telefono | Phone:(52) 981 137 7969
+Telefono | Phone:(52) 999 991 7583
 Correo | Email: kevinwk1810@gmail.com o kevinjesusortizbarrera@gmail.com
 Fiverr: https://es.fiverr.com/s2/4d9c3a660b
 
